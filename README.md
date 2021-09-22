@@ -1,0 +1,2 @@
+# PRIMERPARCIAL
+ parcialresuelto 
